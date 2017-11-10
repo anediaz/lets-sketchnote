@@ -1,1 +1,1 @@
-# quickie-JUG2017
+# quickie Let's Sketchnote !
